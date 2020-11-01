@@ -776,6 +776,13 @@ If you are looking for romance, teenagers figuring out life and guys removing th
 
 > The lives, loves, dangers and disasters in the town, Mystic Falls, Virginia. Creatures of unspeakable horror lurk beneath this town as a teenage girl is suddenly torn between two vampire brothers.
 
+#### [The Magicians](https://www.imdb.com/title/tt4254242/)
+
+Fun campy show about college aged magicians. Pretty funny and great story and acting. Think Buffy the Vampire Slayer meets Harry Potter
+
+> After being recruited to a secretive academy, a group of students discover that the magic they read about as children is very real-and more dangerous than they ever imagined.
+ 
+
 ---
 
 ## You got through the list and didn't find anything?
